@@ -1,22 +1,22 @@
-# My Favorite Series
+# My Favorite Movie
 
-## Transformers
+## Tangled
 
-I really love *Transformers* because of its amazing mix of action, science fiction, and incredible robot battles.  
-The story shows the epic war between the **Autobots** and **Decepticons**, teaching teamwork, loyalty, and courage.
+I really love *Tangled* because of its beautiful animation, heartwarming story, and unforgettable songs.  
+It tells the story of **Rapunzel**, a princess with magical long hair who dreams of seeing the floating lanterns.
 
 **Main Characters:**
-- Optimus Prime 🛻  
-- Bumblebee 🚗  
-- Megatron 💀  
-- Starscream ✈️  
-- Ironhide 🔫
+- Rapunzel 👸  
+- Flynn Rider 🏴‍☠️  
+- Pascal 🦎  
+- Maximus 🐴  
+- Mother Gothel 😈  
 
 **Favorite Quote:**
-> “Freedom is the right of all sentient beings.” – Optimus Prime
+> “Venture outside your comfort zone. The rewards are worth it.”
 
 **Why I Like It:**
-- The transformations are awesome.
-- The battle scenes are thrilling.
-- The characters have strong personalities.
-- It mixes technology and heroism perfectly.
+- The animation is stunning and colorful.  
+- The soundtrack is inspiring and fun.  
+- The characters are lovable and funny.  
+- The movie teaches courage, freedom, and self-discovery.
